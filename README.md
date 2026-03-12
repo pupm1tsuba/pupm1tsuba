@@ -5,5 +5,6 @@
 
 ꒰ྀི　(:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅)　✚༏ིྀᐩ⠀꒱꒱
 
-<img1 src="https://i.pinimg.com/736x/b6/1d/25/b61d251739646b08b4ce23bde7ad4fb1.jpg" alt="Story pin image"/><img width="736" height="724" alt="image" src="https://github.com/user-attachments/assets/a87621f2-1e89-48ec-b3a4-00f9e49b8f29" />
+<img1 src="https://i.pinimg.com/avif/736x/bf/ff/8b/bfff8b26d23082f74cca487b21c48b0c.avf" alt="This may contain: an anime character with pink hair and blue eyes"/><img width="1200" height="460" alt="image" src="https://github.com/user-attachments/assets/c1cb27fe-deae-4fa8-90ec-aaf4de375933" />
+
 
